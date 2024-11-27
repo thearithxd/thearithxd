@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @thearithxd
+- 👀 I’m interested in RHYTHM GAME
+- 🌱 I’m currently learning SOFTWARE DEVELOPER
